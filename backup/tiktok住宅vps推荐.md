@@ -16,6 +16,7 @@
 7.G口路线的vps：https://console.evoxt.com/aff.php?aff=200
 8.适合建独立站的vps，住宅vps也有：https://cloud.ciuic.com/aff/AAOLRAJU
 9.适合建立站，双isp美国英国：https://www.acebgp.com/aff.php?aff=103
+
 正规直播专线需要配合软路由：https://www.ipdodo.com/account/register?invite_code=9KC0MS45
 中转推荐一 ：https://gorelay.net/#register/LODQENOOXD
 中转推荐二：https://wepc.au/aff.php?aff=810
