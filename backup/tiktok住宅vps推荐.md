@@ -22,3 +22,4 @@
 中转推荐二：https://wepc.au/aff.php?aff=810
 中转推荐三：[https://nnr.moe?aff=14165](https://nnr.moe/?aff=14165)
 中转目前直播最稳推荐四：https://idc333.top/#register/KHKFZADUHI
+苹果共享ID地址：https://idshare001.me/goso.html
