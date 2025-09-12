@@ -13,6 +13,7 @@
 6.2 美国att住宅：https://www.proxystore.net/?ref=27898
 6.3 各大地区的都有，冷门地区也有但是只能用于短视频：https://app.onesproxy.com/api/channel_agent/track?user_source=1&invite_code=VYL13427
 6.4 美国、英国、日本、马来、泰国等等地区的住宅ip可直播：https://share.cliproxy.com/share/ecrlzbv4b
+6.5 美国、英国等等各大地区的住宅ip都有：https://www.985proxy.com/#/?invite=R9TGMB
 7.G口路线的vps：https://console.evoxt.com/aff.php?aff=200
 8.适合建独立站的vps，住宅vps也有：https://cloud.ciuic.com/aff/AAOLRAJU
 9.适合建立站，双isp美国英国：https://www.acebgp.com/aff.php?aff=103
