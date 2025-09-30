@@ -48,4 +48,4 @@
 ##
 ## 如果需要机场请打开:https://bk.wjnba.eu.org/
 ##
-## 苹果共享ID地址：https://idshare001.me/goso.html
+##免费 苹果小火箭共享ID地址：https://idshare001.me/goso.html
