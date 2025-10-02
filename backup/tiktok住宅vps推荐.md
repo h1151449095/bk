@@ -38,13 +38,13 @@
 ##  正规直播专线需要配合软路由：https://www.ipdodo.com/account/register?invite_code=9KC0MS45
 ##
 ##
-## 中转推荐一 ：https://gorelay.net/#register/LODQENOOXD    
+## 中转目前直播最稳推荐一 ：https://idc333.top/#register/KHKFZADUHI
 ##
 ## 中转推荐二：https://wepc.au/aff.php?aff=810
 ##
 ## 中转推荐三：https://nnr.moe?aff=14165
 ##
-## 中转目前直播最稳推荐四：https://idc333.top/#register/KHKFZADUHI
+## 中转推荐四： https://gorelay.net/#register/LODQENOOXD    
 ##
 ## 如果需要机场请打开:https://bk.wjnba.eu.org/
 ##
